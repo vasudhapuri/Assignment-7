@@ -15,7 +15,7 @@ Q6- https://www.youtube.com/watch?v=hQEIhPLHUCc
 Q7-  (i)  https://www.youtube.com/watch?v=8OCZZGckgFE     
        (ii)  https://www.youtube.com/watch?v=4h_SBQw9Ez4     
    
-      (made 2 videos because 1st got stopped in middle) 
+      (made 2 videos for Q 7 because 1st got stopped in middle) 
 
 Q8- https://www.youtube.com/watch?v=w4glegqggeQ
 
